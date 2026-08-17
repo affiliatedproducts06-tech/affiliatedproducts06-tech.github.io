@@ -1,1 +1,1 @@
-# joco.gonzales.github.io
+# affiliatedproducts06-tech.github.io
